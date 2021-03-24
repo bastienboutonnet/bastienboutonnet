@@ -1,4 +1,5 @@
-### Hi there 👋
+### Well hello there! 👋
+![1_xZj_Ek-mTBXzifnA2c-rNg](https://user-images.githubusercontent.com/4304794/112292360-4f173680-8c91-11eb-8181-fe8731c5c65c.jpeg)
 
 <!--
 **bastienboutonnet/bastienboutonnet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
